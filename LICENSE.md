@@ -1,4 +1,4 @@
-
+one tap Script vip offers the most advanced one tap Script, with auto-heal and esp. Perfect for dominating any match.
 
 
 
